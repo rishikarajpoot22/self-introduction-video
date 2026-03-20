@@ -1,4 +1,4 @@
-# Self Introduction Video — Rishika
+# Self Introduction Video — Rishika Rajpoot
 
 Name: Rishika Rajpoot
 Course: B.Tech CSE  
